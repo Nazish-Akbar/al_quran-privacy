@@ -1,1 +1,0 @@
-# al_quran-privacy
